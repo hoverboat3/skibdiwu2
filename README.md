@@ -1,5 +1,6 @@
 # skibdiwu2
 some links
+
 https://wallhaven.cc/w/5w8yp8 🤤
 
 https://wallhaven.cc/w/jx2z35
@@ -114,7 +115,7 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=3534732504
 
 https://steamcommunity.com/sharedfiles/filedetails/?id=3535859894
 
-https://steamcommunity.com/sharedfiles/filedetails/?id=2917650042  (b)
+https://steamcommunity.com/sharedfiles/filedetails/?id=2917650042 🥵
 
 https://n1.coomer.su/data/b2/19/b21966791ec4c28d952ddbeaa325a13b243d70493600178f8734dea2e883afb5.mp4?f=612579107003179008.mp4 
 
