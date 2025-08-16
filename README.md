@@ -7,6 +7,20 @@ https://wallhaven.cc/w/jx2z35
 
 https://wallhaven.cc/w/6o825x
 
+https://wallhaven.cc/w/x8q17z
+
+https://wallhaven.cc/w/m9jp19
+
+https://wallhaven.cc/w/weyg8p
+
+https://wallhaven.cc/w/m9gdr8
+
+https://wallhaven.cc/w/q21pmr
+
+https://wallhaven.cc/w/8o655y 🤤
+
+https://wallhaven.cc/w/jxmq7m 🤤
+
 https://wallhaven.cc/w/5gzq73
 
 https://wallhaven.cc/w/x8l2kz
