@@ -166,3 +166,5 @@ https://www.8kcosplay.com/%E6%A1%83%E8%B0%B7%E8%8B%A5%E5%A7%AC%E5%AD%90-%E9%BB%9
 https://www.sese277.info/videos/53707/2739/ 
 
 https://xidol.net/artgravia-vol-435-parkhaag-%EB%B0%95%ED%95%98%EC%95%85/
+
+https://xidol.net/artgravia-vol-326-jang-joo-%ec%9e%a5%ec%a3%bc/
