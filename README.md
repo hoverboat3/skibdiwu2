@@ -127,6 +127,8 @@ https://wallhaven.cc/w/7pvkwe
 
 https://wallhaven.cc/w/2ydxe9
 
+https://www.8kcosplay.com/ninja%e9%98%bf%e5%af%a8%e5%af%a8-ol%e6%b6%b2%e5%8c%96%e4%b8%8a%e8%a1%a328p%ef%bc%8f224mb/
+
 https://steamcommunity.com/sharedfiles/filedetails/?id=2954735045
 
 https://steamcommunity.com/sharedfiles/filedetails/?id=3487956207
